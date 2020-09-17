@@ -1,10 +1,10 @@
 # Sea-Of-Thieves-ESP
-Best SOT cheat in the biz!
-Fish bot
-Mini Map
-Full size map
-Xmarks (Incl devils roar)
-Riddles
-Cannon aimbot
-If you can imagine it, and it can be done safely it's there!
+Best SOT cheat in the biz!  
+Fish bot  
+Mini Map  
+Full size map  
+Xmarks (Incl devils roar)  
+Riddles  
+Cannon aimbot  
+If you can imagine it, and it can be done safely it's there!  
 https://www.youtube.com/channel/UCcsCnKUuexWZJag6T_Ux7lQ
