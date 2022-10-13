@@ -7,4 +7,4 @@ Xmarks (Incl devils roar)
 Riddles  
 Cannon aimbot  
 If you can imagine it, and it can be done safely it's there!  
-https://smartcheats.net/d-github
+https://smartcheats.vip/d-github
