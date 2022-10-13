@@ -1,4 +1,4 @@
-# Sea-Of-Thieves-ESP
+# SmartCheats Sea-Of-Thieves-ESP
 Best SOT cheat in the biz!  
 Fish bot  
 Mini Map  
